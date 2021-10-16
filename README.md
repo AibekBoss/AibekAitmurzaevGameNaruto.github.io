@@ -1,0 +1,2 @@
+# AibekAitmurzaevGameNaruto.github.io
+game
